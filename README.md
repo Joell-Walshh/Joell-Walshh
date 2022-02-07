@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Joell-Walshh
 - 👀 I’m interested in your mum
 - 🌱 I’m currently learning your mum
+- 🌳 I have skills in your mum
 - 💞️ I’m looking to collaborate on your mum
 - 📫 How to reach me: your mum
 
